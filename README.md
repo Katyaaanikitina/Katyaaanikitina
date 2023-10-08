@@ -8,7 +8,7 @@
 
 - How to reach me **katyanikitina16@gmail.com**
 
-- I’m  working on 'Online blog' project
+- I’m  working on 'Amity' project
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
